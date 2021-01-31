@@ -1,0 +1,1 @@
+# class-7o-blog
